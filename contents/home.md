@@ -6,7 +6,7 @@
 他是毕业于兰州大学的菜鸡
 
 #### Email
-sli[at]cumt.edu.cn
+sereinnario@gmail.com
 
 #### Education
 兰州大学（985）  化学化工学院  化学        本科  2018.09 - 2022.06\
